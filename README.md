@@ -1,0 +1,1 @@
+# gestione-presenze-2027.
